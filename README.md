@@ -1,4 +1,4 @@
-👋 Hello, I’m @SarigalaChetan. I recently completed my B.Tech in Computer Science and Engineering from IIIT Raichur. During my time there, I had the privilege of being taught by esteemed faculty from IIT Hyderabad, as they served as our mentor institute for three years.
+👋 Hello, I’m @Chetan. I recently completed my B.Tech in Computer Science and Engineering from IIIT Raichur. During my time there, I had the privilege of being taught by esteemed faculty from IIT Hyderabad, as they served as our mentor institute for three years.
 
 🚀 I have a strong interest in AI, with particular expertise in machine learning and natural language processing.
 
@@ -8,7 +8,7 @@
 
 📬 You can reach me through:
 * WhatsApp: 9391719199
-* LinkedIn: [Chetan Sarigala](https://www.linkedin.com/in/chetan-sarigala/)
+* LinkedIn: [Chetan Sarigala](https://www.linkedin.com/in/chetansarigala/)
 
 👤 Pronouns: He/Him
 
