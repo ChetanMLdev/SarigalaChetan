@@ -8,7 +8,7 @@
 
 📬 You can reach me through:
 * WhatsApp: 9391719199
-* LinkedIn: [Chetan Sarigala](https://www.linkedin.com/in/chetansarigala/)
+* LinkedIn: [Chetan S](https://www.linkedin.com/in/chetansarigala/)
 
 👤 Pronouns: He/Him
 
